@@ -2,4 +2,5 @@
 CS grad, master juggler, i like fun ideas
 
 # Contact 
-https://x.com/_0xFa
+
+[x](https://x.com/dev_fayha)
