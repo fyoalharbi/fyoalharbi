@@ -1,5 +1,5 @@
 # fayha'a
-CS grad, master juggler, i like fun ideas
+CS grad, master juggler, i like fun ideas let's work on one! 
 
 # Contact 
 
